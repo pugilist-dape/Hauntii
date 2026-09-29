@@ -238,4 +238,4 @@ Hauntii is offered as a **full free version** with all features and updates incl
 Start your journey through Eternity today and experience the magic of Hauntii! Download now and embrace the adventure!
 
 ---
-**Last updated:** 2026-09-29 07:59:12 UTC
+**Last updated:** 2026-09-29 14:48:39 UTC
